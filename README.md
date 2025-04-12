@@ -1,0 +1,1 @@
+## Apenas atividades acadêmicas
